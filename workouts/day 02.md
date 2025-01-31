@@ -1,5 +1,3 @@
-Okay, I understand. You want the expertise of a seasoned trainer with 30 years of experience. Let's cut through the process and get you a workout plan that reflects that level of knowledge. I'll provide the information as if I've spent decades in the gym, guiding athletes and everyday people to achieve their goals.
-
 **Biceps and Triceps Home Workout: The 30-Year Trainer Approach**
 
 **Philosophy:**
